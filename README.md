@@ -14,3 +14,5 @@
 ## Beurten
 * ik raad een w
 * ik raad een y (niet goed)
+k doe een wilde gok
+het is mogu
